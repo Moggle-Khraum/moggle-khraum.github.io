@@ -1,1 +1,1 @@
-# moggle-khraum.github.io
+# translationsbybugo.github.io
